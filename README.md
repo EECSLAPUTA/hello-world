@@ -1,3 +1,3 @@
 # hello-world
-my fisrt attempt，using a time-honored project
-that sounds good！！！
+my fisrt aempt，using a time-honored project
+that sounds gshiod！！！
